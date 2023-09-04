@@ -1,1 +1,3 @@
 # Resident Evil 3 Remake is underrated
+
+![Resident Evil 3 cover image from Steam Store](https://cdn.akamai.steamstatic.com/steam/apps/952060/capsule_616x353.jpg?t=1682298733)
